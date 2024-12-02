@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **myself**
 
-- 📫 How to reach me **guns.lol/zert**
+- 📫 How to reach me **guns.lol/zertisherebaby**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
